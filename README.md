@@ -2,4 +2,4 @@
 
 𓂃 　𓎟𓎟　⠀ ⁽ 🪼 ⁾ ⠀ 　𓎟𓎟　𓂃
 
-About me !
+won't introduce myself here as i already have one for patreon. :https://patreon.com/rxzvms?utm_medium=unknown&utm_source=join_link&utm_campaign=creatorshare_creator&utm_content=copyLink
